@@ -1,2 +1,2 @@
 # paris24-bousselmi_Fontaine-G2
-Fontaine / Klein / Medlock
+Fontaine Lucas / Klein Antoine / Anna Medlock
